@@ -1,0 +1,1 @@
+# coal-transitions-energy-justice-figures
